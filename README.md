@@ -106,5 +106,6 @@ With the advent of globalization, rapid technology advances and a continually ch
 10. Multinational Collective Intelligence
 The Institute research and education network consists of about 55 universities and organizations from 40 countries. We leverage this strong multinational network to provide the clients with a global perspective and leading advice. 
 Additional Resources & Reference:
+
 Executive Education Courses and Programs in the USA, Canada and Europe in January, February, March, April, May, June, July, August, September, October, November, and December.
 
